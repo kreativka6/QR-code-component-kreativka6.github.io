@@ -1,0 +1,1 @@
+# QR-code-component-kreativka6.github.io
